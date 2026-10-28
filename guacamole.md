@@ -1,0 +1,13 @@
+#Guacamole
+
+##Ingredients
+- 2 avacados
+- 1 small onion
+- 1 tomato
+- 1 lime
+- salt and pepper
+- 2 cloves of garlic
+- cumin to taste
+- coriander to taste
+
+##Instructions
