@@ -11,3 +11,5 @@
 - coriander to taste
 
 ##Instructions
+- CUT THE TOMATO IN SUPER SMALL BITS
+- PRESS THE AVOCADO
