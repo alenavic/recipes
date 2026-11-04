@@ -1,7 +1,7 @@
 #Guacamole
 
 ##Ingredients
-- 2 avacados
+- 2 avocados
 - 1 small onion
 - 1 tomato
 - 1 lemons
